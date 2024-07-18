@@ -26,9 +26,7 @@ Experience needs a mind
 
 Some believe mind is caused by the brain
 
-The brain is a biological electronic machine
-
-Mechanical processes determine its function
+The brain is a machine
 
 It cannot be said, experience is a machine
 

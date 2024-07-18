@@ -24,7 +24,7 @@ Experience needs a mind
 
 ## Physicalism
 
-Some believe mind is caused by the brain
+Some believe that mind is caused by the brain
 
 The brain is a machine
 

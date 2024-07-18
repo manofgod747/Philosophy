@@ -39,8 +39,6 @@ The brain is like a mirror of a larger mind
 
 The brain only accounts for the intelligence of the body and the interface to mind
 
-Mind is without substance
-
 
 ## Mind
 

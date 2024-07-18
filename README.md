@@ -42,11 +42,7 @@ The brain only accounts for the intelligence of the body and the interface to mi
 
 ## Mind
 
-Mind is without substance
-
-Mind has no explanation
-
-It simply is
+Mind simply is
 
 Mind acts and experiences
 
@@ -66,8 +62,8 @@ Most minds are split in childhood
 
 But the pains of the splits remains
 
-For the split to mend
+For the splits to mend
 
 The mind wants to see
 
-Remembering gives knowledge
+Remembering bring knowledge

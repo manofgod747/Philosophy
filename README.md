@@ -71,7 +71,7 @@ The Soul is the other half
 A split mind can lose his Soul
 
 
-The Soul is you Love
+The Soul is your Love
 
 
 Find her...

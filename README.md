@@ -70,4 +70,4 @@ For the split to mend
 
 The mind wants to see
 
-Knowledge is remembering
+Remembering gives knowledge

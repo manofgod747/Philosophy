@@ -24,9 +24,7 @@ Experience needs a mind
 
 ## Physicalism
 
-Some believe that mind is caused by the brain
-
-The logic is impossible
+Some believe mind is caused by the brain
 
 The brain is a biological electronic machine
 
@@ -35,6 +33,8 @@ Mechanical processes determine its function
 It cannot be said, experience is a machine
 
 Therefore, mind is not a machine
+
+Mind is not physical
 
 
 ## The Relationship Between Mind and Body

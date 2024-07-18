@@ -60,9 +60,11 @@ Remembering brings knowledge
 
 ## Mind
 
-Mind has a Soul
+Mind is eternal
 
-The Soul is feminine
+Mind has Soul
+
+The Soul is the Feminine
 
 A split mind can lose his Soul
 

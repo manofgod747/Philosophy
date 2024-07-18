@@ -48,9 +48,7 @@ Mind has no explanation
 
 It simply is
 
-Mind is the observer
-
-The one who experiences
+Mind acts and experiences
 
 
 ## The Relationship Between Mind and Body
@@ -66,8 +64,10 @@ The hurt spreads to the body like a disease
 
 Most minds are split in childhood
 
-But the pains of the split remains
+But the pains of the splits remains
 
 For the split to mend
 
 The mind wants to see
+
+Knowledge is remembering

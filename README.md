@@ -40,13 +40,6 @@ The brain is like a mirror of a larger mind
 The brain only accounts for the intelligence of the body and the interface to mind
 
 
-## Mind
-
-Mind simply is
-
-Mind acts and experiences
-
-
 ## The Relationship Between Mind and Body
 
 When the body is violated
@@ -66,4 +59,19 @@ For the splits to mend
 
 The mind wants to see
 
-Remembering bring knowledge
+Remembering brings knowledge
+
+
+## Mind
+
+Mind has a Soul
+
+The Soul is the other half
+
+A split mind can lose his Soul
+
+
+The Soul is you Love
+
+
+Find her...

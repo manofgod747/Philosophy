@@ -17,9 +17,9 @@ Only though is boring
 
 Only experience is death
 
-Thought wants the experience
+Mind wants the experience
 
-Experience cannot be without mind
+Experience needs a mind
 
 
 ## Physicalism
@@ -28,7 +28,7 @@ Some believe that mind is caused by the brain
 
 The logic is impossible
 
-The brain is an biological electronic machine
+The brain is a biological electronic machine
 
 Mechanical processes determine its function
 

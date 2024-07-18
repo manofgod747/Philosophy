@@ -13,31 +13,28 @@ Mind thinks
 
 Body experiences
 
-Only thinking is boring
+Only though is boring
 
-Only experiencing is death
+Only experience is death
 
-Thinking wants to experience
+Thought wants the experience
 
-Experience wants to be though of
-
-A thing and a non thing in co-dependency
+Experience cannot be without mind
 
 
-## The physical
+## Physicalism
 
-Some believe that mind is something that appears in brains
+Some believe that mind is caused by the brain
 
-Brains are physical
+The logic is impossible
 
-The physical is experienced
+The brain is an biological electronic machine
 
-Brain are experienced
+Mechanical processes determine its function
 
+It cannot be said, experience is a machine
 
-The brain is like a mirror of a larger mind
-
-The brain only accounts for the intelligence of the body and the interface to mind
+Therefore, mind is not a machine
 
 
 ## The Relationship Between Mind and Body
@@ -48,16 +45,15 @@ The mind splits
 
 A split mind hurts
 
-The hurt spreads to the body like a disease
-
+The pain spreads to the body like a disease
 
 Most minds are split in childhood
 
-But the pains of the splits remains
+But the pains of the splits remain
 
 For the splits to mend
 
-The mind wants to see
+The mind needs to see
 
 Remembering brings knowledge
 
@@ -66,12 +62,8 @@ Remembering brings knowledge
 
 Mind has a Soul
 
-The Soul is the other half
+The Soul is feminine
 
 A split mind can lose his Soul
 
-
-The Soul is your Love
-
-
-Find her...
+The Soul is your True Love

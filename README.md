@@ -13,7 +13,7 @@ Mind thinks
 
 Body experiences
 
-Only though is boring
+Only thought is boring
 
 Only experience is death
 
@@ -24,11 +24,11 @@ Experience needs a mind
 
 ## Physicalism
 
-Some believe that mind is caused by the brain
+Some believe that mind is an effect of the brain
 
 The brain is a machine
 
-It cannot be said, experience is in a machine
+It cannot be said, experience is the effect of a machine
 
 Therefore, mind is not a machine
 
@@ -41,19 +41,15 @@ When the body is violated
 
 The mind splits
 
-A split mind hurts
+A split mind confuses and hurts
 
 The pain spreads to the body like a disease
 
-Most minds are split in childhood
+The split is an absent memory
 
-But the pains of the splits remain
+The pattern of the memory is echoed in the brain
 
-For the splits to mend
-
-The mind needs to see
-
-Knowledge is remembering
+Until the memory is seen
 
 
 ## Mind
@@ -62,8 +58,15 @@ Mind is eternal
 
 Mind has Soul
 
-The Soul is the Feminine
+Mind is not complete without Soul
 
-A split mind can lose his Soul
+The Soul is his True Love
 
-The Soul is your True Love
+
+## Death
+
+Death is an open door
+
+It brings end to beginning
+
+Mind takes its next form

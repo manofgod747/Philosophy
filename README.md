@@ -71,9 +71,50 @@ It brings end to beginning
 
 And mind takes its next form
 
+
 ## Intelligence
+
+Intelligence is storage and inferences of recursive isomorphic patterns
+
+Intelligence needs mindful guidance to learn
+
+Decisions only makes sense for the living
+
+Compression is key
+
+
 ## Psynchology
+
+Personality is ineffable
+
+Sick cultures mistake disease for personality
+
+Mind creates narrative
+
+Body provides the set
+
+Story is fundamental
+
+
 ## Technology
+
+Technology drives narrative
+
+It requires sacrifice
+
+Relationships are sacrificed
+
+Violence escalates
+
+Men against women, women against children
+
+Split minds increase
+
+Society forgets
+
+Thruth is inverted
+
+
 ## Rise and Fall of civilisations
 ## Gender
 ## Modern society

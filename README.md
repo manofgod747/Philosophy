@@ -28,7 +28,7 @@ Some believe that mind is caused by the brain
 
 The brain is a machine
 
-It cannot be said, experience is a machine
+It cannot be said, experience is in a machine
 
 Therefore, mind is not a machine
 

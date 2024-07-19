@@ -28,11 +28,11 @@ Some believe that mind is an effect of the brain
 
 The brain is a machine
 
-It cannot be said, experience is the effect of a machine
+It cannot be said that experience is the effect of a machine
 
-Therefore, mind is not a machine
+Therefore mind is not a machine
 
-Mind is not physical
+Mind is non physical
 
 
 ## The Relationship Between Mind and Body
@@ -52,15 +52,15 @@ The pattern of the memory is echoed in the brain
 Until the memory is seen
 
 
-## Mind
+## Mind & Soul
+
+Mind is without substance
 
 Mind is eternal
 
 Mind has Soul
 
-Mind is not complete without Soul
-
-The Soul is his True Love
+Soul completes mind
 
 
 ## Death
@@ -69,4 +69,4 @@ Death is an open door
 
 It brings end to beginning
 
-And Mind takes its next form
+And mind takes its next form

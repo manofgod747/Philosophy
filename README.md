@@ -53,7 +53,7 @@ For the splits to mend
 
 The mind needs to see
 
-Remembering brings knowledge
+Knowledge is remembering
 
 
 ## Mind

@@ -70,3 +70,10 @@ Death is an open door
 It brings end to beginning
 
 And mind takes its next form
+
+## Intelligence
+## Psynchology
+## Technology
+## Rise and Fall of civilisations
+## Gender
+## Modern society

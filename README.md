@@ -69,4 +69,4 @@ Death is an open door
 
 It brings end to beginning
 
-Mind takes its next form
+And Mind takes its next form

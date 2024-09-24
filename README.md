@@ -66,10 +66,10 @@ On the other hand, those who lack power and self control, desire power over othe
 ## Psychopathy
 Psychopathy is here defined as a person who has suffered traumatic violence. Psychopathy is matter of degree.
 
-Class I
+### Class I
 Class I psychopathy is defined as a body without a soul. A machine without purpose or intention that repeats whatever pattern has been learned, There is no free will. Only pattern repetition. These bodies are in complete darkness. Complete unawareness.
 
-Class II
+### Class II
 Class II psychopathy is a body with a partially detached soul. The soul is present but lacks full bodily control. The mind is damaged to some degree and the body is taken by temptations of varying kind depending on the types of experienced trauma.
 
 ## Form

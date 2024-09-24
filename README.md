@@ -30,6 +30,8 @@ The ultimate endevour of life is to rid oneself of the idolatry and temptations 
 
 This is the fundamental story about the spiritual awakening, The Rebirth, that all spiritual teachings share. The road to oneness, mental freedom, is different for everyone, but some of the tools to gain insight into what needs to take place are common to all. One such thing is isolation and rehabilitation. Inevitably one needs to unhabituate oneself from the idolotrous nature of human civilisation. This process can take a long time depending on the subjects psychology and willingness to undergo metamorphosis. The end result is freedom from bondage and a life in servitude to GOD. In this universe there is much to do and experience. There are many stories to be told. Civilizations rise and fall. Technologies come and go.
 
+Once this existence is completed, a higher realm awaits with fundamentally different priciples and drives. A world where the universe and other worlds are functional parts of the higher realm.
+
 ## Language
 It is important to understand that language is a set of symbols that connects perception to a mental domain of model. Language models our percieved reality. The type of language used decide how well a problem can be modeled.
 

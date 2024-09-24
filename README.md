@@ -36,12 +36,41 @@ Once this existence is completed, a higher realm awaits with fundamentally diffe
 It is important to understand that language is a set of symbols that connects perception to a mental domain of model. Language models our percieved reality. The type of language used decide how well a problem can be modeled.
 
 ## Idolatry
+Idolatry is the idea of placing guiding importance into material relationships. It is the act of trusting and putting our faith and hope into someone or some thing or some group or something of material nature. Idolatry is hard to uncover. Even when one believes he does not idolize, idolatry is hidden in plain sight. The idolatrer is unaware of his idolatry. 
+
+The main forms of idolatry are belief in celebrities. Belief in organizations, the state, the church, university, media etc. 
+
+Parent idolization is common. The notion that one should listen to the advice, wants and needs of parents by placing any special regard to that relationship on the basis of genetic inheritance. This type of idolatry is incurred by the parents by mean of violence and shaming. Relationships are best valued on the basis of mutual love, respect, and understanding. Sane parents are careful to advice their children and make sure their children grow up to meet their own destiny. That is the best way to form a healthy bond to children. It is a mistake to believ that bodily age brings forth wisdom. Children are often more wise than their parents. 
+
+Religious idolatry is equally common. This is the notion that ones religious group and writings somehow play a central role in spiritual life. Religious groups have their own morals and traditions that have nothing to with spirituality and everything to do with cults. They practice cultural worship but are blind to the fact of it being idolatry. This goes for Christians, Jews, Muslims, Buddists and others. Spiritual life is about forming an internal relationship with GOD. No books or institutions are required. 
 
 ## Sexuality
+Sexuality stands at the root of the driving force of all living creates in the world. Sexuality is defines as the emotional and bodily pleasures that arise out of the process of reproduction. It is necesary for reproduction to be pleasurable in order for species to survive. 
+
+A functional and enjoyable sex life is crucial to animals and humans alike. It plays a central role in all behaviour. Much of what we do is in pursuit of offspring wheter we are aware of it or not. Work titles are a means to display mating status. Material wealth and skill aquisition alike. 
+
+Humans become aware of their sexuality from an early age, before sexual maturity. Everyone longs for intimacy and seeks pleasure. We can pleasure ourselfes but being pleasures by others is often more erotic.
+
+All mammals seek erotic pleasure from and early age from their parents, tribe and peers. Giving and receiving pleasure is fundamental to emotional well being. For reasons of inbreeding it is in general important for children to leave their parents to find suitable mates. It is important that parents facilitate this, since children are unaware of the consequences of inbreeding. 
+
+## Genital mutilation
+In degenerate cultures, genital mutilation of males in particular becomes norm. This is an effort to control male sexuality. It puts the males to shame and their bodily rights are violated by cultural means. The practice has a huge negative impact on male well being.  
 
 ## Power
+People who lack self control tend to impose control over others. It is the irony of power dynamics. Those who lack power of their desires, desire power over others. 
+
+True power is about self realization and self control. The ability to control ones emotions and interactions with others without crossing boundaries. People who have this control do not seek to control others. Their power eminate from their ability to form strong relationships.
+
+On the other hand, those who lack power and self control, desire power over others. 
 
 ## Psychopathy
+Psychopathy is here defined as a person who has suffered traumatic violence. Psychopathy is matter of degree.
+
+Class I
+Class I psychopathy is defined as a body without a soul. A machine without purpose or intention that repeats whatever pattern has been learned, There is no free will. Only pattern repetition. These bodies are in complete darkness. Complete unawareness.
+
+Class II
+Class II psychopathy is a body with a partially detached soul. The soul is present but lacks full bodily control. The mind is damaged to some degree and the body is taken by temptations of varying kind depending on the types of experienced trauma.
 
 ## Form
 

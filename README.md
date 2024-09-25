@@ -33,16 +33,18 @@ This is the fundamental story about the spiritual awakening, The Rebirth, that a
 Once this existence is completed, a higher realm awaits with fundamentally different priciples and drives. A world where the universe and other worlds are functional parts of the higher realm.
 
 ## Language
-It is important to understand that language is a set of symbols that connects perception to a mental domain of model. Language models our percieved reality. The type of language used decide how well a problem can be modeled.
+Language is a set of symbols that connects perceptions to the domain of formal modeling. Language models our percieved reality. The type of language used decide how well a problem can be modeled.
 
 ## Idolatry
-Idolatry is the idea of placing guiding importance into material relationships. It is the act of trusting and putting our faith and hope into someone or some thing or some group or something of material nature. Idolatry is hard to uncover. Even when one believes he does not idolize, idolatry is hidden in plain sight. The idolatrer is unaware of his idolatry. 
+Idolatry is the idea of placing guiding importance into material relationships. It is the act of trusting and putting our faith and hope into someone or some thing or some group, whether that is family or religioun. Idolatry is hard to uncover. It rests in the shadow. Even when one believes he does not idolize, idolatry is hidden in plain sight. The idolatrer is unaware of his idolatry.
 
-The main forms of idolatry are belief in celebrities. Belief in organizations, the state, the church, university, media etc. 
+The main forms of idolatry are belief in parents, family and celebrities. Belief in organizations, the state, the church, universities, media etc.
 
-Parent idolization is common. The notion that one should listen to the advice, wants and needs of parents by placing any special regard to that relationship on the basis of genetic inheritance. This type of idolatry is incurred by the parents by mean of violence and shaming. Relationships are best valued on the basis of mutual love, respect, and understanding. Sane parents are careful to advice their children and make sure their children grow up to meet their own destiny. That is the best way to form a healthy bond to children. It is a mistake to believ that bodily age brings forth wisdom. Children are often more wise than their parents. 
+Parent idolization is common. The notion that one should listen to the advice, wants and needs of parents by placing any special regard to that relationship on the basis of genetic inheritance. This type of idolatry is incurred by the parents by mean of violence and shaming. Relationships are best valued on the basis of mutual love, respect, and understanding. Sane parents are careful to advice their children and make sure their children grow up to meet their own destiny. That is the best way to form a healthy bond to children. It is a mistake to believe that bodily age brings forth wisdom. Children are often more wise than their parents. 
 
-Religious idolatry is equally common. This is the notion that ones religious group and writings somehow play a central role in spiritual life. Religious groups have their own morals and traditions that have nothing to with spirituality and everything to do with cults. They practice cultural worship but are blind to the fact of it being idolatry. This goes for Christians, Jews, Muslims, Buddists and others. Spiritual life is about forming an internal relationship with GOD. No books or institutions are required. 
+Religious idolatry is equally common. This is the notion that ones religious group and writings somehow play a central role in spiritual life. Religious groups have their own morals and traditions that have little to with spirituality and much to do with cults. They practice cultural worship but are blind to the fact of it being idolatrous. This goes for Christians, Jews, Muslims, Buddists and others. Spiritual life is about forming an internal relationship with one self and GOD. No books or institutions are required.
+
+Much of our idolatrous attitudes stem from the fear of trust in our own instincts.
 
 ## Sexuality
 Sexuality stands at the root of the driving force of all living creates in the world. Sexuality is defines as the emotional and bodily pleasures that arise out of the process of reproduction. It is necesary for reproduction to be pleasurable in order for species to survive. 
@@ -66,8 +68,12 @@ On the other hand, those who lack power and self control, desire power over othe
 ## Psychopathy
 Psychopathy is here defined as a person who has suffered traumatic violence. Psychopathy is matter of degree.
 
+When the body is subject to horrific violence, the soul leaves the body. During this time, the soul does not see or feel any of the sensations that are taking place. After the situation is over, the soul returns to the body, unaware of what just transpired. The pattern of violence is stored in the brain, and the pattern is echoed in the body until the soul understands what transpired. 
+
+The level of psychopaty is in proportion to the type of violence an individual is subject to. If enough violence is used, the soul may leave the body indefinetly. This leaves a soulless body that can be arbitrarily controlled. The body without a soul is here called a Class I psychopathy. The partially detchated soul is called Class II psychopathy.
+
 ### Class I
-Class I psychopathy is defined as a body without a soul. A machine without purpose or intention that repeats whatever pattern has been learned, There is no free will. Only pattern repetition. These bodies are in complete darkness. Complete unawareness.
+Class I psychopathy is defined as a body without a soul. A machine without purpose or intention that repeats whatever pattern that has been learned. There is no free will. Only pattern repetition. These bodies are completely unawarene.
 
 ### Class II
 Class II psychopathy is a body with a partially detached soul. The soul is present but lacks full bodily control. The mind is damaged to some degree and the body is taken by temptations of varying kind depending on the types of experienced trauma.

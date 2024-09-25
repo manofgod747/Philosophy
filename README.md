@@ -3,6 +3,9 @@
 
 Philosophy is the matter of modeling thoughts using language to best conform to percieved reality or a constrained problem. When thinking about existensial questions of life, one need to deal with questions of the ultimate nature of reality and our own relationship to this percieved reality. Questions of human nature, sexuality, normality, power, spirituality, life, death and beyond are parts of this equation.
 
+## Duality
+Duality is the idea that everything that exists has a two fold nature. If something is the case, the inversion of it is also a possibility. If there something to call white, there needs to be something to call not white. Not white is called black. The reason those two words can exists is the fact that we can experience them as separate things. 
+
 ## The Short Version
 Reality can be viewed as a recursive mind. A mind able to design and create worlds and inhabit those worlds with lesser minds of varying types. This oneness of mind that multiplies itself into being is what is called GOD. The nature of GOD cannot be expressed using language. GOD is beyond all conceptualization. 
 
@@ -19,6 +22,8 @@ In this universe, the principles of Good and Evil, life and death, are the centr
 Good can be defined as one that is aware and evil is unawareness. Life is good, death is evil. Death is the shadow of life, without which, life could not be defined. The primarity duality of nature.
 
 Unawareness is evil because the unaware body is dead. the unaware are creatues whos soul have left the body due to unfortunate circumstances. Violence. They are senseless pattern repeating machines. They have no intention. Only the living have intention. In modern language, another word for the dead are class I psychopathy. These types of bodies "live" only for self preservation and material obsessions. 
+
+## Metamorphosis
 
 Children are born in Love. Children are free from concepts that have been normalized into the adult mind. Children explore life in awe of its beauty. Adults constrain children to whatever mental frame society has to offer. This mental frame becomes a prison of mind. Adults may regard children as unsavory due to their unawareness of human norms. This difference in mental perception of the world puts the child at odds with the parents. The parents humiliate the child, by force of habit, into a controlled mental frame. There is nothing good about this forced mental frame. It is what it is due to circumstances. If children were left to their own deviced to learn and adapt with maximum independence and freedom, a completely different kind of morality would arise as the child grows up.
 
@@ -73,7 +78,7 @@ When the body is subject to horrific violence, the soul leaves the body. During 
 The level of psychopaty is in proportion to the type of violence an individual is subject to. If enough violence is used, the soul may leave the body indefinetly. This leaves a soulless body that can be arbitrarily controlled. The body without a soul is here called a Class I psychopathy. The partially detchated soul is called Class II psychopathy.
 
 ### Class I
-Class I psychopathy is defined as a body without a soul. A machine without purpose or intention that repeats whatever pattern that has been learned. There is no free will. Only pattern repetition. These bodies are completely unawarene.
+Class I psychopathy is defined as a body without a soul. A machine without purpose or intention that repeats whatever pattern that has been learned. There is no free will. Only pattern repetition. These bodies are completely unaware.
 
 ### Class II
 Class II psychopathy is a body with a partially detached soul. The soul is present but lacks full bodily control. The mind is damaged to some degree and the body is taken by temptations of varying kind depending on the types of experienced trauma.
@@ -82,6 +87,4 @@ Class II psychopathy is a body with a partially detached soul. The soul is prese
 
 ## Perception
 
-## Duality
 
-## Metamorphosis
